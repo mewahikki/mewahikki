@@ -1,6 +1,7 @@
 <div aligh="center">
 <img width="900" height="500" src="58343084672050d45aa757caca4970e3.jpg"</div>
 &nbsp;
+<div align="center">
 ≽^• ˕ • ྀི≼ ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ ≽^• ˕ • ྀི≼ </div>
 <div align="center">
 <div align="center">
