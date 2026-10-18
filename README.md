@@ -2,9 +2,14 @@
 <img width="900" height="500" src="58343084672050d45aa757caca4970e3.jpg"</div>
 &nbsp;
 ≽^• ˕ • ྀི≼ ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ ≽^• ˕ • ྀི≼ </div>
-  
-**mewahikki/mewahikki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+<div align="center">
+&nbsp;
+&nbsp;
+&nbsp;
+<img width="500" height="100" src="342695852895767946.jpg"</div>
 
+**mewahikki/mewahikki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
