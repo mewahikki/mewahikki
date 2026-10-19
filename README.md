@@ -39,4 +39,7 @@
 ｒｕｓ/ｅｎｇ/ｓｐａ </div>
 &nbsp;
 ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚
+
+&nbsp;
 <div align="center">
+<img width="500" height="100" src="icons and headers of ulzzangs or k-idols - 4º.jpg"</div>
