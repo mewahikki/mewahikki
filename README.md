@@ -23,6 +23,8 @@
 <img width="500" height="100" src="AfvhA1YAvnGT24hhh2ZnmCWDZiOeLbu80uB3kARoci-hY87TJZCVnhY.jpg"</div>
 <img width="500" height="100" src="1096556209315272528.jpg"</div>
 <div align="center">
+✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚
+<div align="center">
 **mewahikki/mewahikki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 Here are some ideas to get you started:
 
