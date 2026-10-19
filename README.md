@@ -61,4 +61,4 @@
 
 &nbsp;
 <div align="center"> 
-➽──────────────❥ &nbsp; &nbsp; 𝓜𝓔 &nbsp; &nbsp; <img width="300" height="400" src="17fd8ab81dd962a4cfa7c0f5243adc3b.jpg"</div> &nbsp; &nbsp; 
+➽──────────────❥ &nbsp; &nbsp; 𝓜𝓔 &nbsp; &nbsp; <img width="300" height="400" src="17fd8ab81dd962a4cfa7c0f5243adc3b.jpg"</div> &nbsp; &nbsp; <img width="200" height="300" src="739c8bc948ea07e480837a937a36c12a.jpg"</div>
