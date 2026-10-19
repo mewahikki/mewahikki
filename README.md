@@ -50,3 +50,11 @@
 &nbsp;
 <div align="center">
 <a href="https://t.me/mewahikki">𝐓𝐄𝐋𝐄𝐆𝐑𝐀𝐌</a> &nbsp; &nbsp; <a href="https://www.twitch.tv/mewahikki">𝐓𝐖𝐈𝐓𝐂𝐇</a> &nbsp; &nbsp; <a href="https://ru.pinterest.com/mangleterminator/_profile/">𝐏𝐈𝐍𝐓𝐄𝐑𝐄𝐒𝐓</a> &nbsp; &nbsp; <a href="https://tiktok.com/@mewahikki">𝐓𝐈𝐊𝐓𝐎𝐊</a> &nbsp; &nbsp; <a href="https://mewahikki.atabook.org/">𝐀𝐓𝐀𝐁𝐎𝐎𝐊</a>
+
+&nbsp;
+<div align="center">
+◆:*:◇:*:◆:*:◇:*:◆"◆:*:◇:*:◆:*:◇:*:◆
+
+&nbsp;
+<div align="center"> 
+ₓ˚. ୭ ˚○◦˚.˚◦○˚ ୧ .˚ₓ
