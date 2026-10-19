@@ -26,6 +26,7 @@
 &nbsp;
 <div align="center">
 ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚
+
 &nbsp;
 <div align="center">
 Ｍａｎｇｌｅ </div>
@@ -37,7 +38,9 @@
 ＩＮＦＰ , ６ｗ５ , ｓｐ６ｓｐ４ｓｐ８ , ｍｅｌ </div>
 <div align="center">
 ｒｕｓ/ｅｎｇ/ｓｐａ </div>
+
 &nbsp;
+<div align="center">
 ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚
 
 &nbsp;
