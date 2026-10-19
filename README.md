@@ -22,9 +22,11 @@
 <img width="500" height="100" src="。` userboxes.jpg"</div>
 <img width="500" height="100" src="AfvhA1YAvnGT24hhh2ZnmCWDZiOeLbu80uB3kARoci-hY87TJZCVnhY.jpg"</div>
 <img width="500" height="100" src="1096556209315272528.jpg"</div>
+
 &nbsp;
 <div align="center">
 ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚
+&nbsp;
 <div align="center">
 Ｍａｎｇｌｅ </div>
 <div align="center">
@@ -35,3 +37,6 @@
 ＩＮＦＰ , ６ｗ５ , ｓｐ６ｓｐ４ｓｐ８ , ｍｅｌ </div>
 <div align="center">
 ｒｕｓ/ｅｎｇ/ｓｐａ </div>
+&nbsp;
+✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚
+<div align="center">
