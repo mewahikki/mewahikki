@@ -58,3 +58,7 @@
 &nbsp;
 <div align="center"> 
 ₓ˚. ୭ ˚○◦˚.˚◦○˚ ୧ .˚ₓ
+
+&nbsp;
+<div align="center"> 
+➽──────────────❥ &nbsp; &nbsp; 𝓜𝓔 &nbsp; &nbsp; 
