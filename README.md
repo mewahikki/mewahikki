@@ -62,3 +62,7 @@
 &nbsp;
 <div align="center"> 
 ˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊ &nbsp; &nbsp; 𝓜𝓔 &nbsp; &nbsp; <img width="300" height="400" src="17fd8ab81dd962a4cfa7c0f5243adc3b.jpg"</div> &nbsp; &nbsp; <img width="200" height="175" src="739c8bc948ea07e480837a937a36c12a.jpg"</div>
+
+&nbsp;
+<div align="center">
+𝒟𝒩𝐼: <a href="https://dni-criteria.carrd.co/">ʙᴀsɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ</a>, ʟᴇss ᴛʜᴀɴ 18 ʏ.ᴏ ᴜɴʟᴇss ᴄʟᴏsᴇ ꜰʀɪᴇɴᴅs, ᴅᴀʀᴋsʜɪᴘᴘᴇʀs, ᴇx ꜰʀɪᴇɴᴅs ᴏʀ ᴘᴀʀᴛɴᴇʀs, ᴏᴠᴇʀʟʏ ᴊᴇᴀʟᴏᴜs ᴘᴇᴏᴘʟᴇ, ᴡʜɪɴᴇʀs, ʜᴀᴛᴇʀs ᴏꜰ ᴍʏ ꜰᴀᴠs.
