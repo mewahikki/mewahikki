@@ -26,3 +26,12 @@
 <div align="center">
 ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚ ✩‧₊˚༺☆༻*✩‧₊˚
 <div align="center">
+Ｍａｎｇｌｅ </div>
+<div align="center">
+０７/０４ ２０ ｙ.ｏ </div>
+<div align="center">
+ｓｈｅ/ｈｅｒ </div>
+<div align="center">
+ＩＮＦＰ , ６ｗ５ , ｓｐ６ｓｐ４ｓｐ８ , ｍｅｌ </div>
+<div align="center">
+ｒｕｓ/ｅｎｇ/ｓｐａ </div>
